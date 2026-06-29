@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot Script hidden offers the most advanced steal a brainrot Script, with god mode and speed. Perfect for dominating any match.
 
 
 
